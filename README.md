@@ -3,8 +3,9 @@ the strawpage in question ------> https://gardengnostix.straw.page/
 
                                                        !! PLEASE READ !!
 
-my girlfriend ditzykat and i are currently being confused for i think 2 other people who apparently said some pretty fucked up and ableist shit. that was not us!! please double check before you harass us over nothing. crazy that i even have to say this.
-if you *do* have a problem with us, please tell us! sitting on top of us and mocking us is very immature. were all (hopefully) adults here.
+if you see me or my girlfriend DitzyKat sitting on top of someone, we likely have them hidden and dont know were on them. just whisper me and ill probably move over. im usually sitting in the sonic area and have most, if not all, of 'thunderbringers' friends hidden.
+this is due to them and their friends harrassing me, my girlfriend, and plenty of others for basically no reason. theyre kinda insufferable! on top of this, DitzyKat and i were being confused for 2 other people who said some pretty gross and ableist things.
+that was NOT us. if you have a problem with us PLEASE just whisper and tell us, we are not here to cause issues for anyone and we will try to avoid doing something if you tell us it upsets you. were all hopefully adults here.
 
 
                                                             ! DNI !
