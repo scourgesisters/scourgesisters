@@ -4,7 +4,7 @@ the strawpage in question ------> https://gardengnostix.straw.page/
                                                        !! PLEASE READ !!
 
 if you see me or my girlfriend DitzyKat sitting on top of someone, we likely have them hidden and dont know were on them. just whisper me and ill probably move over. im usually sitting in the sonic area and have most, if not all, of 'thunderbringer's friends hidden.
-this is due to them and their friends harrassing me, my girlfriend, and plenty of others for basically no reason. theyre kinda insufferable! on top of this, DitzyKat and i were being confused for 2 other people who said some pretty gross and ableist things.
+(i only use their name cuz i dont remember any of their friends names) this is due to them and their friends harrassing me, my girlfriend, and plenty of others for basically no reason. theyre kinda insufferable! on top of this, DitzyKat and i were being confused for 2 other people who said some pretty gross and ableist things.
 that was NOT us. if you have a problem with us PLEASE just whisper and tell us, we are not here to cause issues for anyone and we will try to avoid doing something if you tell us it upsets you. were all hopefully adults here.
 
 
