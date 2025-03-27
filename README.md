@@ -3,7 +3,7 @@ the strawpage in question ------> https://gardengnostix.straw.page/
 
                                                        !! PLEASE READ !!
 
-hi. my girlfriend <a href="https://github.com/DitzyKat">DitzyKat</a> wrote in this response to a doc that thunderbringer or "rafa" and his friends put together. they say its not a callout doc, but thats all it really does.
+hi. my girlfriend <a href="https://github.com/DitzyKat">DitzyKat</a> and i wrote in this response to a doc that thunderbringer or "rafa" and his friends put together. they say its not a callout doc, but thats all it really does.
 i find it appalling that i got put into a doc with a bunch of pedophiles and other awful people over a headcanon. so heres our response to their "response" ---> https://spamaltpage.straw.page/ 
 
 
