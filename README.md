@@ -4,7 +4,8 @@ the strawpage in question ------> https://gardengnostix.straw.page/
                                                        !! PLEASE READ !!
 
 hi. my girlfriend <a href="https://github.com/DitzyKat">DitzyKat</a> and i wrote this in response to a doc that thunderbringer or "rafa" and his friends put together. they say its not a callout doc, but thats all it really does.
-i find it appalling that i got put into a doc with an actual pedophile and other awful people over a headcanon, but this ponytown shit gets crazy ig. so heres our response to their "response" ---> https://spamaltpage.straw.page/ 
+i find it appalling that i got put into a doc with an actual pedophile and other awful people over a headcanon, but this ponytown shit gets crazy ig. so heres our response to their "response" ---> https://spamaltpage.straw.page/
+(theres more now just scroll down)
 
 
                                                             ! DNI !
