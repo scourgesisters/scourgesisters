@@ -1,5 +1,5 @@
 # PLEASE-READ-BYI
-<a href="https://gardengnostix.straw.page/">the strawpage in question (click on me click this link click it now)</a>
+<a href="https://scourgesisterss.straw.page/">the strawpage in question (click on me click this link click it now)</a>
 
                                                        !! PLEASE READ !!
 
