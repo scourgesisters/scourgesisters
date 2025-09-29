@@ -3,7 +3,7 @@
 
                                                        !! PLEASE READ !!
 
-this happened a while ago, but im leaving it here to make sure there are no misunderstandings in the future. my girlfriend <a href="https://github.com/DitzyKat">DitzyKat</a> and i wrote something to address some allegations about us in a doc that thunderbringer or "rafa" and his friends put together. they say its not a callout doc, but it links to a strawpage called callouts. read if you want, this is months old, i dont care lol <a href=https://spamaltpage.straw.page/>our response.</a>
+this happened a while ago, but im leaving it here to make sure there are no misunderstandings in the future. my girlfriend <a href="https://github.com/DitzyKat">DitzyKat</a> and i wrote something to address some allegations about us in a "callout" doc that thunderbringer or "rafa" and his friends put together. read if you want, this is months old, i dont care lol <a href=https://spamaltpage.straw.page/>our response.</a>
 
 
                                                             ! DNI !
